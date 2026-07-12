@@ -96,7 +96,7 @@
 ## 📫 Connect With Me
 
 - 📧 Email: gaurisandeejadhav428@gmail.com
-- 💼 LinkedIn: Add your LinkedIn profile link here
+- 💼 LinkedIn: www.linkedin.com/in/gauri-jadhav-55b583331
 
 ---
 
